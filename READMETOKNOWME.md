@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KikiHoima Kii for short
+- 👀 I’m interested in: Art
+- 🌱 I’m currently learning: How to Shape 3D models (more professionally)
+- 📫 How to reach me: KikiHoima@gmail.com
+- 😄 Pronouns: She/They
+- ⚡ Fun fact: I Like to collect shiny stones
